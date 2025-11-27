@@ -13,4 +13,4 @@
 
 ## Контакты
 
-- Telegram: @Marusuadrey
+- Telegram: @Marusyadrey
